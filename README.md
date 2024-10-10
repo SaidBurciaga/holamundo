@@ -17,7 +17,7 @@ Me gustaria viajar a Estados Unidos y Japon.
 
 Mi pasatiempo es dibujar y jugar Minecraft.
 
-Me decepciono esta pc de mrd
+Me decepciono esta pc tan lenta.
 
 Exitos: Ser jefe de grupo, platinar Horizon 
 
