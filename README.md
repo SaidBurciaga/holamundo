@@ -11,7 +11,7 @@ Repositorio de Dios
 
 5.-Soy bueno dibujando.
 
-Casa: Una casa mediana, moderna, con picina, como la de Bobicraft. 
+Casa: Una casa grande, moderna, con picina, como la de Bobicraft. 
 
 Me gustaria viajar a Estados Unidos y Japon.
 
