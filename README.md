@@ -3,11 +3,11 @@ Repositorio de Dios
 Me llamo Said
 Soy responsable
 Me gusta leer libros
-Me gustan los videojuegos 
+Me gustan los videojuegos
+Soy bueno dibujando
 
-Una casa con 4 paderes(opcional)
-
-
+Una casa mediana, moderna, con picina, como la de Bobicraft gogogogogogogog 
+Me gustaria viajar a Estados Unidos y Japon
 
 Guapo, poderoso, asombroso
 Muy hermoso, soy precioso, armonioso
