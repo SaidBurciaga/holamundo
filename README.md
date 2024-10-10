@@ -3,7 +3,7 @@ Repositorio de Dios
 
 Me llamo Said.
 
-Soy responsable, serio, un poco timido.
+Soy responsable, un poco timido, inteligente.
 
 Me gusta leer libros,me gustan los videojuegos.
 
