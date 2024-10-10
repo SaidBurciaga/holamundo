@@ -6,7 +6,7 @@ Me gusta leer libros
 Me gustan los videojuegos
 Soy bueno dibujando
 
-Una casa mediana, moderna, con picina, como la de Bobicraft gogogogogogogog 
+Una casa mediana, moderna, con picina, como la de Bobicraft gogogogogogogog descuido venga la alegria
 Me gustaria viajar a Estados Unidos y Japon
 
 Guapo, poderoso, asombroso
