@@ -1,17 +1,17 @@
 # holamundo
 Repositorio de Dios
 
-Me llamo Said.
+1.-Me llamo Said.
 
-Soy responsable.
+2.-Soy responsable.
 
-Me gusta leer libros.
+3.-Me gusta leer libros.
 
-Me gustan los videojuegos.
+4.-Me gustan los videojuegos.
 
-Soy bueno dibujando.
+5.-Soy bueno dibujando.
 
-Una casa mediana, moderna, con picina, como la de Bobicraft. 
+Casa: Una casa mediana, moderna, con picina, como la de Bobicraft. 
 
 Me gustaria viajar a Estados Unidos y Japon.
 
